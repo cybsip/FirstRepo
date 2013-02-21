@@ -7,7 +7,7 @@
 	*15 fl.oz. Gin
 
 ##Comment faire :
-	*Schtroumpfez la recette "Bronx" au shaker .
+	*Schtroumpfez la recette "Bronx" au shaker Schtroumpfez énergiquement.
 	*Schtroumpfez les ingrédients au shaker avec des glaçons et Schtroumpfez 		dans le verre en retenant la glace.
 	*Schtroumpfez dans un verre de type "verre à martini".
 	*Décor: Un zeste d'orange.
