@@ -1,3 +1,7 @@
 # Recette de Bronx
 
-À écrire...
+Ingrédients :
+	Jus orange
+	Vermouth blanc
+	Vermouth rouge
+	Gin
