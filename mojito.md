@@ -8,10 +8,10 @@
 	*2 cuillère à café de sucre
 
 ##Comment faire :
-	*Réalisez la recette "Mojito" directement dans le verre.
-	*Placer les feuilles de menthe dans le verre, ajoutez le sucre et le jus 	  de citrons. Piler consciencieusement afin d'exprimer l'essence de la 		 menthe sans la broyer. Ajouter le rhum, 4 glaçons et mélangez. Remplir 	 la moitié restante du verre d'eau gazeuse. Mélanger doucement avec une 	 paille. Voila, le Mojito est prêt.
-	*Servir dans un verre de type "tumbler".
-	*Décor: Décorer de feuilles de menthe fraîches et d'une tranche de citron.
-	*Bien que la recette originale ne contienne pas d'angostura, vous pouvez y ajouter quelques gouttes afin de le rendre un peu plus sec.
+	*Schtroumpfez la recette "Mojito" directement dans le verre.
+	*Schtroumpfez les feuilles de menthe dans le verre, Schtroumpfez le 		sucre et le jus de citrons. Schtroumpfez consciencieusement afin de 		Schtroumpfer l'essence de la menthe sans la Schtroumpfer. Schtroumpfez 		le rhum, 4 glaçons et Schtroumpfez. Schtroumpfez la moitié restante du 		verre d'eau gazeuse. Schtroumpfez doucement avec une paille. Voila, le 		Mojito est Schtroumpf.
+	*Schtroumpfez dans un verre de type "tumbler".
+	*Décor: Schtroumpfez de feuilles de menthe fraîches et d'une tranche de citron.
+	*Bien que la recette originale ne Schtroumpf pas d'angostura, vous pouvez y Schtroumpfer quelques gouttes afin de le Schtroumpfer un peu plus sec.
 
 *Olé !*
