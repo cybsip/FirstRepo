@@ -1,9 +1,9 @@
 #Recette de Mojito
 
 ##Ingrédients :
-	*6cl de Rhum cubain
-	*3cl de jus de citrons verts
-	*7feuilles de menthe
+	*20 fl.oz.  de Rhum cubain
+	*10 fl.oz de jus de citrons verts
+	*7 feuilles de menthe
 	*eau gazeuse
 	*2 cuillère à café de sucre
 
